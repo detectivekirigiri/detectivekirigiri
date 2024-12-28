@@ -3,6 +3,6 @@
 
 <div align="center"> 
 
- <sup>[**STRAWPAGE**](https://steinbian.straw.page)⠀⠀☆⠀⠀[**RENTRY**](https://rentry.co/drfreakystein)⠀⠀
+ <sup>[**STRAWPAGE**](https://todorki.straw.page)⠀⠀☆⠀⠀[**RENTRY**](https://rentry.co/drfreakystein)⠀⠀
 
  <div align="center">  
