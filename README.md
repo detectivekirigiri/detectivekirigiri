@@ -11,6 +11,6 @@
 
 <div align="center"> 
 
- <sup>[**STRAWPAGE**](https://steinbian.straw.page)⠀⠀☆⠀⠀[**RENTRY**](https://rentry.co/drfreakystein)⠀⠀
+ <sup>[**STRAWPAGE**](https://tonaegiri.straw.page)⠀⠀☆⠀⠀[**RENTRY**](https://rentry.co/tonaegi)⠀⠀
 
  <div align="center">  
