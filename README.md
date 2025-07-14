@@ -1,5 +1,7 @@
 <div align="center"> 
 
 <p align="center">
-  <img width="550" height="300" src="https://github.com/user-attachments/assets/bfdbf92b-867f-4c18-ac4a-40a21082deef">
+  <img width="550" height="300" src="https://github.com/user-attachments/assets/d2ed1e01-fffa-4a14-9269-c89d1acef638">
+
+  naegirigami if you squint 🥹
 <div align="center"> 
